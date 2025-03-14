@@ -1,4 +1,4 @@
-19 y/o Computer Engineering student at UNINA.
+20 y/o Computer Engineering student at UNINA.
 
 Main hobbies:
 - creating videogames
